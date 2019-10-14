@@ -1,0 +1,2 @@
+# RepositorioChingon
+Esta super vergas
